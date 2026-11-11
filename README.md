@@ -1,2 +1,4 @@
 # Infinium-reversed
-Remember go buy a cat from the store because everyone deservers a kitty
+
+
+chat can yall make something challenging to reverse :D
